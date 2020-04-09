@@ -1,1 +1,0 @@
-# generativa.github.io
